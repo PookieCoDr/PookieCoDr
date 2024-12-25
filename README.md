@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Open Source Projects
 - 📫 How to reach me ...
       Email: rsbornforhockey@gmail.com
-      LinkedIn: linkedin.com/in/ hritik-singh-67ba7826a 
+      LinkedIn: https://linkedin.com/in/ hritik-singh-67ba7826a 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
